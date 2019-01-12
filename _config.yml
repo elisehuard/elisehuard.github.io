@@ -16,7 +16,7 @@
 title: Stranger here myself (GCU)
 email: blog@jabberwocky.eu
 description: >- # this means to ignore newlines until "baseurl:"
-  Opinions expressed here are solely my own.
+  Opinions expressed here are my own.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: elise_huard
