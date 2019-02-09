@@ -5,7 +5,7 @@ date:   2019-02-04 19:57:00 +0000
 categories: cancer
 ---
 So what's chemo like?  A question I definitely asked myself with some anxiety a week ago.
-The whole thing started the day before, with having to take anti-sickness pills.  Amongst those pills were some steroids, which, to put it mildly, work like a stimulant for me.  For three days I was literally 'on steroids'.
+The whole thing started the day before, with having to take anti-sickness pills.  Amongst those pills were some steroids, which, to put it mildly, work like a stimulant for me.  For three days I was literally 'on steroids' - enough to put me off any kind of stimulants for a while (yes, even you, caffeine).
 
 On the day itself I was shown to a comfy and easily cleanable fake leather armchair in a sunny hospital ward.  Joe sat next to me, being a great moral support, checking up on me and tapping away on his laptop (working remotely ftw).
 
@@ -16,8 +16,8 @@ Anyway, a friendly nurse inserted a perfusion into my arm, and then proceeded to
 The next thing on the menu was a clear bag of liquid (5 fluorouracil), hung up to drip into the perfusion for a bit, while the cooling cap machine continued to buzz next to me.
 And that was it!  A mere three hours later, feeling much the same, I walked out into the world.
 
-As for the aftermath: reading the side effect suggested to me the image of a Chernobyl victim.  Bleeding gums, hairloss, loss of appetite, fatigue, nausea ... the reality was much less dramatic.
-The same evening I felt a bit nauseous, and that queasiness continued, low-level, for the next couple of days.  It didn't take me that long to decode the feeling as 'hungry' or 'take it easy'.  Between that and the steroids keeping me from having proper night's sleep, I was tired, wired and queasy for a few days, but once I could sleep well again, I felt better pretty quickly.
+As for the aftermath: putting it bluntly, reading the side effects brought to mind the image of a Chernobyl victim.  Bleeding gums, hairloss, loss of appetite, fatigue, nausea ... the reality was much less dramatic for me.
+The same evening I felt a bit nauseous, and that queasiness continued, low-level, for the next couple of days.  It didn't take me that long to decode the feeling as 'hungry' or 'take it easy'.  Between that and the steroids startling me awake at odd hours of the night, I was tired, wired and queasy for a few days, but once I could sleep well again, I felt better pretty quickly.
 
 And today, I finally realized that the only abnormal thing left, a tension in my chest, was actually a low-level feeling of dread I'd been carrying since the injections. I was able to breathe more freely, and to laugh at myself a little bit.
 
