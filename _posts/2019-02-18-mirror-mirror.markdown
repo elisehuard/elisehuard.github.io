@@ -10,7 +10,7 @@ We start off a mixed bag of stuff and then we put the face on it that we think r
 
 Roundabout way to get to the point: having cancer throws another interesting factor in the combination.  How do I see myself now?  How will others see me?  Is 'cancer' going to be an important piece of who I am, of how people talk to me?
 
-Keeping my hair has actually given me some time to mull it over.  The moment it's gone I'll be clearly identifiable.  As a man you can get away with being bald - I'll go as far as saying that it can be quite attractive. As a woman, unless you're of the biker-tattoo-piercing persuation, it's not by choice.  You need a great bone structure to get away with it (i.e. Charlize Theron, Alicia Vikander).  For the rest of us being bald is an immediate pointer that Something Is Wrong. One of the reasons for wanting to keep (some of) my hair is that not having it will probably predetermine pretty much every casual conversation I have.
+Keeping my hair has actually given me some time to mull it over.  The moment it's gone I'll be clearly identifiable.  As a man you can get away with being bald - I'll go as far as saying that it can be quite attractive. As a woman, unless you're of the biker-tattoo-piercing persuation, it's not by choice.  You need a great bone structure to get away with it (i.e. Charlize Theron, Alicia Vikander).  For the rest of us going hairless is an immediate pointer that Something Is Wrong. One of the reasons for wanting to keep (some of) my hair is that not having it will probably predetermine pretty much every casual conversation I have.
 
 A bit too much hair in my brush this morning ...
 
