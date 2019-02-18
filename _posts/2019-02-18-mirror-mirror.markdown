@@ -14,6 +14,6 @@ Keeping my hair has actually given me some time to mull it over.  The moment it'
 
 A bit too much hair in my brush this morning ...
 
-Talking to a stranger about cancer: not a conversation starter.  None of your business, really.  Neither is a wheelchair, a cast, bad scars.  They may be the elephant in the room - but the elephant is in your head.  Not to the other person, for whom it's just reality, everyday's background.  A dog, a band t-shirt, a book title - those are good conversation starters. Go with those.
+Talking to a stranger about cancer: not a conversation starter.  None of your business, really.  Neither is a wheelchair, a cast, bad scars.  They may be the elephant in the room - but the elephant is in your head. To the other person it's just reality, everyday's background.  A dog, a band t-shirt, a book title - those are good conversation starters. Go with those.
 
 PS: having and/or surviving cancer doesn't make you a hero.  It just means you got dealt that card. If you're sane, you want to survive, it's pretty much a given - most of us have things to live for, and if we don't we would like to get the chance to change that. Whatever the situation, I'm pretty sure that most humans facing death would just like a little bit more time, please.
