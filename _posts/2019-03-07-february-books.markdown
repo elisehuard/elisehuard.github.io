@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "February 2019 books"
-date:   2019-02-18 20:13:00 +0000
+date:   2019-03-07 20:13:00 +0000
 categories: books media
 ---
 [Command and Control](https://www.goodreads.com/book/show/6452798-command-and-control), a book about the nuclear arms race, has been on my list for a long time, and I finally got round to it.  It's thorough, nerdy, and well put together.  Without expressing a political view directly, it manages to convey the absurdity of the development and deployment of ever more destructive weaponry.  Actual real life horror, humans at their worst and their most stupid.  Darwin awards at a planetary level.
