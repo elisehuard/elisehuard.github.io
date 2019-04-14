@@ -4,7 +4,7 @@ title:  "Running through my veins"
 date:   2019-04-14 20:57:00 +0000
 categories: chemo cancer
 ---
-I thought I'd escaped the full brunt of chemo, by luck, nature, the fact I'm relatively young - or that maybe because of all those things side effects didn't apply to me as much. Chemo-lite if you will.
+I thought I'd escaped the full brunt of chemo, by luck, nature, the fact I'm relatively young - that maybe because of all those things side effects didn't apply to me as much. Chemo-lite.
 
 But last cycle, I got the full experience.
 Docetaxel took the form of a transparent drip bag that took about an hour to empty into my veins.  On the afternoon itself and the couple of days after, I was fine. A little amped on steroids, not sleeping too well, but less queasy than with the last set of drugs, and feeling pleased with myself.
