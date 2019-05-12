@@ -8,9 +8,9 @@ I now know roughly how the rest of my treatment will go - had an appointment wit
 
 The general spirit of cancer care seems to be "Nuke it from orbit", probably because researchers are only starting to explored more fine-tuned, individualized therapies.
 
-So after having systematically made me ill for about 18 weeks, the next step is to remove the bit of flesh that started growing wild.  Fortunately for me nothing mandates the removal of the whole breast, so I'm going with what is termed affectionately 'Lumpectomy' - a smaller intervention that will happen mid-June. This also means I won't be staying in hospital, so yay beds for the NHS.
+So after having systematically made me ill for about 18 weeks, the next step is to remove the bit of flesh that started growing wild.  Fortunately for me nothing mandates the removal of the whole breast, so I'm going with what is termed affectionately 'Lumpectomy' - a smaller intervention that will happen mid-June. This also means I won't be staying in hospital, so yay beds for the NHS, and yay for me.
 
-After the intervention I've got to heal and rest for about a month.  A month?!!?? I asked, adding that as a software engineer surely I didn't fall under 'heavy manual labour'. But yes, a month. It's to get me rested and ready for the next step, which is three weeks of radiotherapy.  Also I heal slower because, you guessed it, the chemotherapy.
+After the intervention I've got to heal and rest for about a month.  A month?!!?? I asked, adding that as a software engineer surely I didn't fall under 'heavy manual labour'. But yes, a month. It's to get me rested and ready for the next step, which is three weeks of radiotherapy.  Also I heal slower because the chemotherapy.
 
 The idea of radiotherapy didn't really fill me with confidence - focused x-ray, for a few seconds every day on the guilty breast. Wait a minute, wasn't radiation supposed to cause cancer?
 
