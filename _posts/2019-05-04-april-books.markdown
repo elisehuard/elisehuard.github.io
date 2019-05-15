@@ -16,7 +16,7 @@ Lots of books this month, probably because I had more time off than usual, combi
 
 [Shades of Magic trilogy](https://www.goodreads.com/book/show/22055262-a-darker-shade-of-magic?ac=1&from_search=true): excellent post-chemo book, easy read. Pretty standard fantasy, with an overpowered baddie with an evil plan to take over the world, and a few heroes fighting to save the day. The story flows well, and even though it's predictable and none too subtle, it's still enjoyable.
 
-[Odd Jobs](https://www.goodreads.com/book/show/30519186-oddjobs): not unlike the Laundry Files, it mixes a Lovecraftian theme, spy thriller and humour into an enjoyable, if lightweight read. The book follows members a british secret agency tasked with managing the apocalypse - a race of demons/horrors, the Venislarm, is poised to take over the world.  Nice passage, when a new member of the theme goes through her induction:
+[Odd Jobs](https://www.goodreads.com/book/show/30519186-oddjobs): not unlike the Laundry Files, it mixes a Lovecraftian theme, spy thriller and humour into an enjoyable, if lightweight read. The book follows members a british secret agency tasked with managing the apocalypse - a race of demons/horrors, the Venislarm, is poised to take over the world.  Nice passage, when a new member of the team goes through her induction:
 
 > She learned the different sirens that would sound in the event of a fire (a ringing bell), a Venislarm incursion (an intermittent klaxon) and the end of the world (bell and klaxon together).
 > "We need an alarm for the end of the world?" she said to Lois. "Why? What are we expected to do about it?"
