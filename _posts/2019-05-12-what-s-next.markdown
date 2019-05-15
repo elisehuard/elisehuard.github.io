@@ -6,7 +6,7 @@ categories: cancer
 ---
 I now know roughly how the rest of my treatment will go - had an appointment with the surgeon on Thursday.
 
-The general spirit of cancer care seems to be "Nuke it from orbit", probably because researchers are only starting to explored more fine-tuned, individualized therapies.
+The general spirit of cancer care seems to be "Nuke it from orbit", probably because researchers are only starting to explore more fine-tuned, individualized therapies.
 
 So after having systematically made me ill for about 18 weeks, the next step is to remove the bit of flesh that started growing wild.  Fortunately for me nothing mandates the removal of the whole breast, so I'm going with what is termed affectionately 'Lumpectomy' - a smaller intervention that will happen mid-June. This also means I won't be staying in hospital, so yay beds for the NHS, and yay for me.
 
