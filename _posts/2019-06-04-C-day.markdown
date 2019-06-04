@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "C day"
-date:   2019-02-18 20:57:00 +0000
+date:   2019-06-04 20:57:00 +0000
 categories: cancer life
 ---
 Tomorrow is a milestone: first time this side of 2019 that I won't have chemotherapy 3 weeks after the last.
