@@ -12,7 +12,7 @@ The news triggered an interesting mix of emotions. Joy, relief, for sure - but a
 
 I’ve worked hard to put up a good face for everyone. I felt like I would’ve burdened my family and friends if I’d shown even a smidgen of despair - and I managed to successfully convince them and myself that I was FINE (shouty caps intentional). No cancer would get me down, not me, no Sir.  Fatigue? What’s that?  I’m an independent woman and busy professional, you know. Only Joe might’ve seen the mask slip on occasion.
 
-And now I’m really fine, I’m going to be fine. The NHS organizes “Moving On” information days for patients who finish the treatment, and that makes perfect sense to me. When you get your diagnosis immediately cancer becomes one of the main topic in your life, however much you don’t want it to. Coming back to normal is not as simple.
+And now I’m really fine, I’m going to be fine. The NHS organizes “Moving On” information days for patients who finish the treatment, and that makes perfect sense to me. When you get your diagnosis immediately cancer becomes one of the main topic in your life, however much you don’t want it to. Coming back to normal is not as simple. I'm going to have to reset a bunch of synapses.
 
 I want to hold on to some of the learnings of this time - it would be stupid not to remember the clarity that comes with an awareness of mortality. Minor irritations just don’t count that much. I've started doing things I enjoyed and had forgotten to do, like writing and drawing a lot more. I tried being more smiley and conversational and to be kind to strangers. I enjoyed a ray of sunshine, the smell of lilac, a cuddle with my daughter more fully than I did before.
 
