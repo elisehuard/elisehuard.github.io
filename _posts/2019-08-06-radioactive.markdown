@@ -18,12 +18,17 @@ She nods. "not very interesting ones" she says "Just dots"
 
 But she's not done.
 "We wouldn't beam it straight in, or your left lung would become a fibrotic useless mass" she said. OK then.
+
 "We will do our best not to hit your heart, because that would significantly increase your chances of having a heart attack. If your heart is close to your ribs, you might have to take a deep breath and hold it to create some space"
+
 "We'll touch a little bit of your lung, which will mean you'll lose about 2% lung capity for the left lung, but you shouldn't notice"
+
 "Your ribs on your left side will be a bit more brittle, so if you have an accident they'll be more likely to break on the left side"
+
 My eyebrows are creeping up and by now they've reached my hairline, and my stomach feels a little tense.
 
 "The inside of your breast will feel different, so you'll have to get familiar with it so you can feel if there's anything out of the ordinary"
+
 "You need to moisturize the area at least two times a day, if not three". Three times? I moisturize, but only exposed bits, face and hands. Moisturizing one breast three times a day is sort of funny.
 
 It's not reassuring, but it's not Chernobyl bad. Unlike with a dirty bomb or a dirty nuclear incident, no radioactive isotopes stay in my body. Instead, a high-energy ray is focused on the area and knocks out the DNA of the cells inside. The cancerous ones die, the healthy ones regrow - which sounds familiar - like chemo only more local.
@@ -32,7 +37,6 @@ I won't feel side effects immediately, but after a week or so I'll feel tired, b
 
 ### Calibration
 As I've gathered by now, the x-rays are no joke. I have an appointment dedicated just to get everything right - using a CT scanner to image the inside of my torso, to make very sure that the radiotherapy rays won't touch my heart.
-There's a trick to it, which is to take in enough breath to separate the breast from the heart, and hold it for 20 seconds.
 
 It took about an hour of my lying under the CT scan, the two technicians making pen marks on my rib cage, measuring thing, taping a white plastic box on my skin, having discussions, and asking me repeatedly to breathe normally and to hold my breath, before they pronounced themselves satisfied. They then made three minuscule tattoos - pin pricks really - one on both sides of the rib cage and one on my breastbone.
 
