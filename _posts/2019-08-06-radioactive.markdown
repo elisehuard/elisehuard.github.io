@@ -4,7 +4,7 @@ title:  "Radioactive"
 date:   2019-08-05 21:58:00 +0000
 categories: cancer
 ---
-Did you think the tale of cancer treatments had ended? I understand where you're coming from. I mean, the cancer is gone, right? right? It is, but we need to make sure. I
+Did you think the tale of cancer treatments had ended? I understand where you're coming from. I mean, the cancer is gone, right? right? I know how you feel. I feel the same, but more so - I've seen enough of the drab beige corridors of the hospital. But I still need radiotherapy.
 
 ### Discussion with the oncologist
 My first question at the appointment with the oncologist's was "given the treatments worked, do I really still need the radiotherapy?"
