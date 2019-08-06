@@ -25,11 +25,11 @@ But she's not done.
 
 "Your ribs on your left side will be a bit more brittle, so if you have an accident they'll be more likely to break on the left side"
 
-My eyebrows are creeping up and by now they've reached my hairline, and my stomach feels a little tense.
+My eyebrows are creeping up and by now they've reached my hairline, and my stomach feels tight.
 
 "The inside of your breast will feel different, so you'll have to get familiar with it so you can feel if there's anything out of the ordinary"
 
-"You need to moisturize the area at least two times a day, if not three". Three times? I moisturize, but only exposed bits, face and hands. Moisturizing one breast three times a day is sort of funny.
+"You need to moisturize the area at least two times a day, if not three". Three times? I moisturize, but only face and hands. Moisturizing one breast three times a day is sort of funny.
 
 It's not reassuring, but it's not Chernobyl bad. Unlike with a dirty bomb or a dirty nuclear incident, no radioactive isotopes stay in my body. Instead, a high-energy ray is focused on the area and knocks out the DNA of the cells inside. The cancerous ones die, the healthy ones regrow - which sounds familiar - like chemo only more local.
 
