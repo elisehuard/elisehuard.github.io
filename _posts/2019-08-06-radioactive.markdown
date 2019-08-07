@@ -51,7 +51,7 @@ The machine is a part of a whole setup: a line of green light is projected on th
 
 To be fair, it's a hard problem: positioning a person, whatever their shape and build, in exactly the right place for the therapy. I get the impression that the machine doesn't have a whole lot of freedom of movement, so it's down to the medical staff to position the people in exactly the right location and in the right position for the rays. A big responsibility, and if it takes time to do it right, then maybe it's the right thing to do.
 
-That first time it takes a fair amount of time to get round to the actual point, with again, people measuring things with (cold) rules, scribbling on my breastbone, shifting me around. I'm told that the next times will be faster, as I get used to things and know how much to breathe in exactly.
+That first time it takes a fair amount of time to get round to the actual point, with again, people measuring things with (cold) rulers, scribbling on my breastbone, shifting me around. I'm told that the next times will be faster, as I get used to things and know how much to breathe in exactly.
 
 Finally everyone leaves, and a siren sounds. I'm told to take a deep breath and hold over the microphone. One of the people comes in again to rotate the arm to the right position, leaves again, and I breathe and hold. And then they come back in, I'm told I did a good job, and I can get dressed and go home.
 
