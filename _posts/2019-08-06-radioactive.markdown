@@ -38,10 +38,12 @@ I won't feel side effects immediately, but after a week or so I'll feel tired, b
 ### Calibration
 As I've gathered by now, the x-rays are no joke. I have an appointment dedicated just to get everything right - using a CT scanner to image the inside of my torso, to make very sure that the radiotherapy rays won't touch my heart.
 
-It took about an hour of my lying under the CT scan, the two technicians making pen marks on my rib cage, measuring thing, taping a white plastic box on my skin, having discussions, and asking me repeatedly to breathe normally and to hold my breath, before they pronounced themselves satisfied. They then made three minuscule tattoos - pin pricks really - one on both sides of the rib cage and one on my breastbone.
+It takes about an hour of my lying under the CT scan, the two technicians making pen marks on my rib cage, measuring thing, taping a white plastic box on my skin, having discussions, and asking me repeatedly to breathe normally and to hold my breath, before they pronounced themselves satisfied. They then make three minuscule tattoos - pin pricks really - one on both sides of the rib cage and one on my breastbone.
 
 ### The sessions
-There were four people present for my first session. I've shown my breasts to many medical people since the start of this process, but I must say, lying exposed for an hour while four medical personnel were discussing things around me felt awkward. I have no issue with nudity in itself, but there's a vulnerability to being the only (half-)naked person in a room of full clothed people. Even if those people are friendly and intent on making me feel comfortable. The next couple of times there's only two lady technicians, which is better.
+There are four people present for my first session. I've shown my breasts to many medical people since the start of this process, but I must say, lying exposed for an hour while four medical personnel were discussing things around me feels awkward. I have no issue with nudity in itself, but there's a vulnerability to being the only (half-)naked person in a room of full clothed people. Even if those people are friendly and intent on making me feel comfortable.
+
+The next couple of times there's only two lady technicians, which is better.
 
 The radiotherapy machine is like a gigantic arm with a large flat cylinder attached to it. The cylinder has measurements and a lit up opening window, makes mechanical noises, and is, I gather, where the radiation will come from. It's easy to tell when it isn't because everyone has to have left the room for anything to happen.
 
