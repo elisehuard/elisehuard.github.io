@@ -10,9 +10,9 @@ They have a ritual for the very last treatment. There's a brass bell hanging off
 
 I didn't have many side effects from the radiotherapy. They recommended to stay active and drink lots of water, and I did, mostly. I started running again. I did feel a little tired towards the end of the treatment, something they tell me is going to last for another week or so. Nothing like chemo though, just a touch of fatigue.
 
-My hair is back for reals - I have a short head of hair, and I quite like to style. So convenient! And people mistake me for a man, which is funny (I got called a 'prick' by some dude today, a first for me). I'm intending to dye it soon.
+My hair is back for reals - I have a short head of hair, and I quite like the style. So convenient! And people mistake me for a man, which is funny (I got called a 'prick' by some dude today, a first for me). I intend to dye it soon.
 
-My nails are growing out as well - a month after my last chemo session the slice of nail touched by the drugs turned yellow and bloodshot, and then lifted off entirely, bit like losing hair but then for nails. The pink healthy bit has been growing steadily, and I think we're pretty much back to normal.
+My nails are growing out as well - a month after my last chemo session the slice of nail touched by the drugs turned yellow and bloodshot, and then lifted off entirely, bit like losing hair, but then for nails. The pink healthy bit has been growing steadily, and I think we're pretty much back to normal.
 
 My sense of smell came back about a month or so as well. I didn't even realize I'd lost it - too gradual, probably - but suddenly I realized that I could smell various things that had disappeared from my life, from my own BO to food and coffee.  I'm glad I didn't realize it was gone, it was like an unlooked for present to have it back.
 
