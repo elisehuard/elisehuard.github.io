@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "September 2019 books"
+title:  "August 2019 books"
 date:   2019-09-05 21:12:00 +0000
 categories: books media
 ---
