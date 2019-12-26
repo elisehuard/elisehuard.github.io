@@ -39,8 +39,8 @@ Nanowrimo is a marathon-worthy effort. I struggle to write a 1000 words in a day
 But it became easier after a while. I got into a groove of planning my next steps in the morning commute on the train, when brain wasn't too fried yet, which meant that I could just execute on the ideas in the evening. There was a trick to progress: which situation do I want the plot to move to, and how do I set it up?
 I got into the habit of writing down ideas in my notebook when they popped up. I tried to produce more in the weekends on off moments, to compensate for difficult week nights.
 
-I spoke to another Bath amateur writer who said that she doesn't participate to nanowrimo anymore: she prefers to write less, but over a longer period of time. I think that is wise, because it's more sustainable - I was pretty burned out for most of December, and only now do I feel I could start writing again.
+I spoke to another Bath amateur writer who said that she doesn't participate to nanowrimo anymore: she prefers to write less (minimum 50 words/day), but every day, over a longer period of time. I think that is wise and more sustainable - I was pretty burned out for most of December, and only now do I feel I could start writing again.
 
 While I have my reservations about the process, I found it a valuable experience. Forcing myself to write high volumes of questionable prose did unblock the writing, and highlighted what was missing in my process and style. I'm not sure I'll be able to use the output - not without rewriting it extensively - but I did push through, from start to finish, and in so doing proved myself it could be done.
 
-I think the next challenge is editing a draft, any draft, and make it work properly. I don't have a very clear idea how to achieve this - it might be even harder, and more strenuous, than writing a first draft. I'm pretty pig-headed though. The journey continues.
+I think the next challenge is editing a draft, any draft, and make it work properly. I don't have a very clear idea how to achieve this - it might be even harder, and more arduous, than writing a first draft. I'm pretty pig-headed though. The journey continues.
