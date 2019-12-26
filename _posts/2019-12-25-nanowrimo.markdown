@@ -4,7 +4,7 @@ title:  "Nanowrimo 2019"
 date:   2019-12-25 18:03:00 +0000
 categories: writing
 ---
-This year I participated to NaNoWriMo: the [National Novel Writing Month](https://en.wikipedia.org/wiki/National_Novel_Writing_Month), which takes place in November every month. It was started in the US in 1999, and it's grown to a worldwide phenomenon. The challenge: write 50000 words - a novel's worth of words - in a month. This comes down to a little less than 1750 words per day. I've wanted to participate for years, but never quite got around to it. Life got in the way, or I forgot and remembered mid-november. This year, I was ready. It was time.
+This year I participated to NaNoWriMo: the [National Novel Writing Month](https://en.wikipedia.org/wiki/National_Novel_Writing_Month), which takes place in November every month. It was started in the US in 1999, and it's grown to a worldwide phenomenon. The challenge: write 50000 words - a novel's worth of words - in a month. Or about 1750 words a day. I've wanted to participate for years, but never quite got around to it. Life got in the way, or I forgot and remembered mid-november. This year, I was ready. It was time.
 
 ### Preptober
 For all my readiness I completely missed that Nanowrimo is preceded by Preptober: a month to prepare your novel. I came to regret missing this stage - it's much easier to write a novel when you have laid out the groundwork. I figure next time I write a book I'll try to:
