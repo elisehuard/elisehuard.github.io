@@ -19,7 +19,7 @@ As far as I can tell, is a spectrum of desired degree of preparedness amongst wr
 Worth noting that for me, writing a long form without preparation did help me figure out what would help, which I would not have known beforehand.
 
 ### The website
-Nanowrimo is backed by a non-profit which is dedicated to helping all aspiring to write their 50000 words. There is a website which helps you track stats. The website has gamification down: the graph of progress is really helpful in seeing whether you're on track.
+Nanowrimo is backed by a non-profit which is dedicated to helping all aspiring to write their 50000 words. There is a website which helps you track stats. The website has gamification down: the graph of progress is really helpful to see whether you're on track.
 ![graphs](/assets/nanowrimo.png)
 
 More importantly, they point wannabe participants to their geographical region's chapter of writers. Every region in the world has a few organizers who organize the community. Which brings me to next point.
