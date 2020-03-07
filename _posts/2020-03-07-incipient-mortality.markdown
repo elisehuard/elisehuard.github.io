@@ -30,3 +30,5 @@ There are good days. On good days, I realize that fear lives in the brain and ha
 Worrying about my health when it's mostly alright is a privilege - many people on this earth have bigger fish to fry, like having enough food, a roof over their heads, education, security. Some of the worrying cycles could be better spent being helpful or kind to the people who need it.
 
 Hopefully, eventually, the balance of the good days will come naturally. I'll remember more consistently that while it lasts, it's good to be alive.
+
+*Note: there are charities that help people deal with this kind of emotions. I might get round to contacting [one myself](https://www.pennybrohn.org.uk/).*
