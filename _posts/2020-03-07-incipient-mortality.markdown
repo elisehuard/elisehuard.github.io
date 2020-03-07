@@ -25,7 +25,7 @@ On bad days it feels like the world is full of bad choices. An incident or an ac
 
 "I'm going to die!" the human cries. Du-uh, as my daughter would say. We'll all die eventually. Just, you know, not yet? Not right now? Later, in an indeterminate number of years, maybe? Diary's pretty full today.
 
-There are good days. On good days, I realize that fear is in the head and has no (or little) impact on reality. It is going to happen, or it isn't, and thinking about it won't affect life one way or the other. That being the case, it's better not to spend energy thinking about it, and to focus on the present, here, now. The people around me. People in general.
+There are good days. On good days, I realize that fear lives in the brain and has no (or little) impact on reality. It is going to happen, or it isn't, and thinking about it won't affect life one way or the other. That being the case, it's better not to spend energy thinking about it, and to focus on the present, here, now. The people around me. People in general.
 
 Worrying about my health when it's mostly alright is a privilege - many people on this earth have bigger fish to fry, like having enough food, a roof over their heads, education, security. Some of the worrying cycles could be better spent being helpful or kind to the people who need it.
 
