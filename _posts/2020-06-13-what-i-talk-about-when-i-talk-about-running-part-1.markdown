@@ -6,7 +6,7 @@ categories: life running
 ---
 The title is based on Murakami's great little book [What I talk about when I talk about running](https://www.goodreads.com/book/show/2195464.What_I_Talk_About_When_I_Talk_About_Running). Very clearly, this is not that. Murakami's book is based on years and years of diary entries, written in his typical poetic style, with the fluency of a professional.
 
-He's also taking running much further, first marathons and then tackling triathlons.  My own version is looking back at years and years of lackadaisical, amateur jogging, none too intensive but still one of the few constants punctuating my teenage and adult years. What his account and mine have in common is that we use running as a lens to remember some events of our lives through.
+He's also taking running much further, first training for marathons and then tackling triathlons.  My own version is looking back at years and years of lackadaisical, amateur jogging, none too intensive but still one of the few constants punctuating my teenage and adult years. What his account and mine have in common is that we use running as a lens to remember some events of our lives through.
 
 I can trace the start of my running to my teenage years 15-18. My parents encouraged us to have a regular schedule of after-school activities - in Belgium school doesn't provide them, so it's up to parents to sort it out - a bit of music, a bit of sports, a bit of whatever we fancied. I'd been a jack-of-all-trades forever, trying a succession of sports for a year or two and then moving on.
 
