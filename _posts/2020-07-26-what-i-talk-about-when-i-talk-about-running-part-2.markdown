@@ -27,6 +27,6 @@ Inge and I both passed our exams, and the years followed each other. We setted i
 
 Inge motivated me to participate to a few local running events, though I still wasn't particularly competitive or taken by the concept. Under her influence I participated to a couple of half marathons, amongst other smaller events.
 
-Those 5 years were a strange, closeted time, and in hindsight a mixed bag of experiences. University studies seem designed to push people as far as they'll go, and while they have an undeniable effect, the process is grueling. Smart people aren't necessarily nice, and I wasn't very secure, having been the odd one out for most of my life.
+Those 5 years were a strange, closeted time, and in hindsight a mixed bag of experiences. University studies seem designed to push people's brains as far as they'll go, and while they have an effect on intellectual capacity, the process is grueling. Smart people aren't necessarily nice, and I wasn't very secure, having been the odd one out for most of my life.
 
 But I found good friends, and learned that as an adult I had the choice of who I hung out with, a very valuable lesson.  My friends, and running, helped to get me through all of it in one piece.
