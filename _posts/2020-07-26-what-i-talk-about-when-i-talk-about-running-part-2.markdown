@@ -23,7 +23,7 @@ Inge hid an iron soul under her petite and friendly demeanor, and I started to r
 
 Especially during the exams jogging became a mental health lifeline. We ran every day. It was a steam valve and a change of gears, a way to remind ourselves that we weren't just walking brains.
 
-Inge and I both passed our exams, and the years followed each other. We setted into the yearly cycle and gained some confidence that we could see this through. We eventually decided to leave the echoey student house to look for a house share, and joined a bunch of other girls in a nice terraced house with a garden.
+Inge and I both passed our exams, and the years followed each other. We setted into the yearly cycle and gained some confidence that we could see this through. We eventually decided to leave the echoey student halls to look for a house share, and joined a bunch of other girls in a nice terraced house with a garden.
 
 Inge motivated me to participate to a few local running events, though I still wasn't particularly competitive or taken by the concept. Under her influence I participated to a couple of half marathons, amongst other smaller events.
 
