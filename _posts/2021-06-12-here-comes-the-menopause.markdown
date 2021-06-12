@@ -16,7 +16,7 @@ Well, 20 years on "they" didn't solve menopause. It has arrived. It's possible t
 
 You have probably heard about the biggest hits: mood swings, hot flashes, weight gain (not yet for me, but it's early days). What I didn't know is that it also fucks with your sleep.  In the last week I've had at least two nights when I woke up 4 or 5 times. Any noise could do it, but also hot flashes, or waking up from what felt like a panic attack, heart racing.
 
-I've always been a good sleeper, going to bed trusting that I would use my hours under the duvet to their maximum advantage. This is no longer the case - I prepare a book, a water bottle, ear plugs, eye mask, phone and headphones, and close my eyes hoping I'll wake up the next morning, miraculously refreshed. But these last weeks, I open them again at 2 or 4 in the morning.
+I've always been a good sleeper, going to bed trusting that I would use my hours under the duvet to their maximum advantage. This is no longer the case - I prepare a book, a water bottle, ear plugs, eye mask, phone and headphones, and close my eyes hoping I'll wake up the next morning, miraculously refreshed. But I open them again at 2 or 4 in the morning.
 
 It's no fun, and I'm going to see a doctor about it - the internets suggest that there are solutions, and at this point I'll take any pointers. I might also look into solutions for sleep apnea, - apparently that's also a definite contender for women my age. Snoring, sweating, rummaging about in the middle of the night - not massively fun for my partner either, but he's remarkably patient about it (so far).
 
