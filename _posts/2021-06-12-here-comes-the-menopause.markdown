@@ -6,7 +6,7 @@ categories: life age
 ---
 When I was in my twenties, I didn't worry too much about middle age, if I thought about it at all. I assumed that by the time I got there, so far into the future I couldn't even imagine it, they would have "solved" menopause. Science, right? Moore's law was exponentially increasing our processing capacity every year, advances were being made in genetics, or maybe I assumed because it was an easy way to dismiss the whole topic.
 
-Whatever the reason, time has taught me that this assumption was incredibly naive.
+Whatever the reason, time has taught me that assumption was incredibly naive.
 
 First, menopause doesn't inconvenience ageing rich (white) men, who are the majority demographic of decision makers in academic institutions, corporations and government. As long as that's the case, "solving" the menopause is never going to receive as much funding as solving erectile dysfunction, male pattern baldness or Alzheimer's. Women's place in society has improved, but we still have to fight prejudice while making sure our biology doesn't inconvenience anyone.
 
