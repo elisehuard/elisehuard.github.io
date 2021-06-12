@@ -14,7 +14,7 @@ Secondly, I vastly overestimated humanity's medical abilities. My cancer treatme
 
 Well, 20 years on they didn't solve menopause. It has arrived. It's possible that chemo destroyed most viable egg cells in my ovaries, speeding it up, or maybe it's just my time.
 
-You have probably heard about the biggest hits: mood swings, hot flashes, weight gain (not yet for me, but it's early days). What I didn't know is that it also fucks with your sleep.  In the last week I've had at least two nights when I woke up 4 or 5 times. Any noise could do it, but also hot flashes, or waking up from what felt like a panic attack, heart racing.
+You have probably heard about the biggest hits: mood swings, hot flashes, weight gain (check for the first two ones, no weight gain yet, but it's early days). What I didn't know is that it also fucks with your sleep.  In the last week I've had at least two nights when I woke up 4 or 5 times. Any noise could do it, but also hot flashes, or waking up from what felt like a panic attack, heart racing.
 
 I've always been a good sleeper, going to bed trusting that I would use my hours under the duvet to their maximum advantage. This is no longer the case - I prepare a book, a water bottle, ear plugs, eye mask, phone and headphones, and close my eyes hoping I'll wake up the next morning, miraculously refreshed. But I open them again at 2 or 4 in the morning.
 
