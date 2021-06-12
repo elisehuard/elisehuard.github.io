@@ -12,7 +12,7 @@ First, menopause doesn't inconvenience ageing rich (white) men, who are the majo
 
 Secondly, I vastly overestimated humanity's medical abilities. My cancer treatment and my partner's chronic pain condition have taught me that sure, medical scientists have achieved great things, vaccines, genetic treatment of life-destroying hereditary diseases, a variety of astonishing transplants and surgical procedures. But the human body is a complex organism with precious little diagnostics. A lot of medicine seems to be whacking at problems with a big stick, hoping they will go away, without quite understanding what did it. Another proportion is just the doctor offering a listening ear and a placebo.
 
-Well, 20 years on "they" didn't solve menopause. It has arrived. It's possible that chemo destroyed most viable egg cells in my ovaries, speeding it up, or maybe it's just my time.
+Well, 20 years on they didn't solve menopause. It has arrived. It's possible that chemo destroyed most viable egg cells in my ovaries, speeding it up, or maybe it's just my time.
 
 You have probably heard about the biggest hits: mood swings, hot flashes, weight gain (not yet for me, but it's early days). What I didn't know is that it also fucks with your sleep.  In the last week I've had at least two nights when I woke up 4 or 5 times. Any noise could do it, but also hot flashes, or waking up from what felt like a panic attack, heart racing.
 
