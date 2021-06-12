@@ -22,4 +22,4 @@ It's no fun, and I'm going to see a doctor about it - the internets suggest that
 
 It's not all doom and gloom. If I manage to survive the next few years mentally and physically more or less intact, there's lots of anecdotal evidence that life post menopause is pretty good, actually. No more hormonal cycle! Bleeding is but the tip of the iceberg (so to speak). Like most cis women I've been living since puberty with a cyclical wave affecting mood, energy and libido.  Menstrual trackers have improved the game immeasurably in terms of being able to predict and manage the effects - but it's all about mitigation. Imagine! After the worst of menopause is over, I'm told that this wave will have settled to a placid, constant background! It sounds incredibly peaceful.
 
-In the meantime, I just need to weather the storm. Like child birth - lots of women have survived it before me, so there's good reason to think I can too - it'll be fine, eventually.
+In the meantime, I just need to weather the storm. Like child birth, lots of women have survived it before me, so there's good reason to think I can too - it'll be fine, eventually.
