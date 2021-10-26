@@ -26,7 +26,7 @@ I continued working from home, but Joe took her schooling in hand. I bought FFP3
 
 We all tested, nearly every day. The small person continued to test positive, but on the bright side we stayed negative.
 
-Weekend, finally - we decided to buy tons of craft stuff, planning for tedium - it felt a bit like another lockdown, only we were the only ones in it. I made cupcakes with the little person (icing of all the colours!), we didn't do much but days still progressed.  Then, on Sunday, the T line in the lateral flow test was ever so slightly fainter - but still there. The COVID infestation was taunting us, the bastard.
+Weekend, finally - we decided to buy tons of craft stuff, planning for tedium - it felt a bit like another lockdown, only we were the only ones in it. I made cupcakes with the little person (icing of all the colours!), we didn't do much but days still progressed.  Then, on Sunday, the T line in the lateral flow test was ever so slightly fainter - but still there. The virus was taunting us, the bastard.
 
 Yesterday, finally, after another rummage in her nostrils, the dreaded T line stayed absent! We kept up protocol for one more day, because we definitely didn't want to catch it because of false negatives. Another 10 days of self-isolation to add to the first 8 felt like a bit too much of a good thing.
 
