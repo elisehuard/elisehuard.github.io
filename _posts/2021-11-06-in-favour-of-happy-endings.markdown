@@ -14,7 +14,7 @@ All our stories will end in death. In the best case scenario, the end will come 
 
 ![All Bette's Stories have happy endings. That's because she knows when to stop (from Sandman, Neil Gaiman)](/assets/sandman.jpg)
 
-For all her bluster, I think my younger adult self hadn't quite internalized this fact. Oh, she knew it, but she didn't really believe it would happen to her. Many of us need a relative's death, or a life-threatening accident or condition to fully get it: "Shit, this point of view of mine, it will once stop, and my consciousness will end forever". From that point on, it's there to stay, lodged in the back of your head.
+For all her bluster, I think my younger adult self hadn't quite internalized this fact. Oh, she knew it, but she didn't really believe it would happen to her. Many of us need a relative's death, or a life-threatening accident or condition to fully get it: "Shit, this point of view of mine, it will once stop, and my consciousness will end permanently". From that point on, this idea is there to stay, lodged in the back of your head.
 
 This knowledge might make you wiser, and can help make life decisions in a lucid way, but I'd argue with my younger self that we don't need to be aware of it all the time. The mind is good at shelving things that aren't relevant to the immediate situation, and this is A Good Thing. Thinking about death is anxiety inducing, and that ever present anxiety won't really help us manage making the most of the time we have.
 
