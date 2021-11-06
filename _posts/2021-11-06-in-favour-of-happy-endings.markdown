@@ -31,7 +31,7 @@ They are well-written, gripping, terrifying, and I can't think about them withou
 
 So did they add anything to my life? I'm not sure. I'm also not sure they've helped anyone realize anything they didn't know already. Reading these books is already an indicator of being aware of the issues. If anything, they fill the reader with a sense of despondency and futility (for the same reason, I'm not sure I'll ever read [The Road](https://www.goodreads.com/book/show/6288.The_Road)).
 
-There are huge issues in the world, and it takes a massive act of willful blindness to ignore them. I'm not advocating ignoring them - even though it might make one happier in the short term. A lot of people seem to have gone for the middle-class my-world-is-fine-everything-is-fine ostrich approach, and in doing so they become part of the problem - voting for populist demagogues, polluting like there's no tomorrow, investing without ethics, blaming the unfortunate for their predicaments.
+There are huge issues in the world, and it takes a massive act of willful blindness to ignore them. I'm not advocating looking away - even though it might make one happier in the short term. A lot of people seem to have gone for the middle-class my-world-is-fine-everything-is-fine ostrich approach, and in doing so they become part of the problem - voting for populist demagogues, polluting like there's no tomorrow, investing without ethics, blaming the unfortunate for their predicaments.
 
 But then again, staring the death and destruction of our world in the face constantly can only lead to depression. So I've started to enjoy a different kind of book: books that propose solutions, or approaches that might lead to solutions.
 
