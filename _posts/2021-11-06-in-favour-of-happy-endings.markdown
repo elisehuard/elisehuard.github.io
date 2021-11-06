@@ -22,7 +22,7 @@ Focusing on the present moment is probably the healthiest attitude. Reading book
 
 ### Bigger picture
 
-Near future dystopias: I've read some good ones - and by that I mean books that were burned themselves into my brain.
+Near future dystopias: I've read some good ones - books that burned themselves into my brain.
 To name but a few:
 * [84K](https://www.goodreads.com/en/book/show/35511975-84k) by Claire North - pushing oligarchic capitalism to its extreme
 * [The Water Knife](https://www.goodreads.com/book/show/23209924-the-water-knife), [Wind-up Girl](https://www.goodreads.com/book/show/6597651-the-windup-girl) by Paolo Bacigalupi - ecological disasters.
