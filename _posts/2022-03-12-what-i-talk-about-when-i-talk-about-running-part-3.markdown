@@ -7,7 +7,7 @@ categories: life running
 It's six in the morning, and my feet are pounding wet dark tarmac of Kelvingrove Park, Glasgow. It's autumn and the sun is not up yet, but orange sodium lamps provide enough light to delineate the wet branches of the trees around me in grey and orange, and glint off the puddles on the path. The air feels cold and humid.
 I have slight headache, a pinched feeling behind my eyeballs. I had a bit too much wine last night at dinner. I'm living the expat life, and it's cheaper for me to eat out with my colleagues and expense it than to cook for myself.
 
-Working hard and playing hard has been my life for a couple of months, between working as a consultant in dull bank offices right outside the city and going out at night and drinking too much. Since it was my first job, I have no idea if this was normal or not, I just follow my senior colleagues assuming they know best.
+Working hard and playing hard has been my life for a couple of months, between working as a consultant in dull bank offices right outside the city and going out at night and drinking too much. Since it is my first job, I have no idea if this is normal or not, I just follow my senior colleagues assuming they know best.
 
 We have recently moved into some nice flats next to Kelvingrove Park after staying at the Hilton for a few months, and being in a more accessible environment gives me the opportunity to start running again - albeit early in the morning. It is a slice of silence and alone time I didn't know I needed. It's also an opportunity to explore a city that is on the verge of waking up.
 
