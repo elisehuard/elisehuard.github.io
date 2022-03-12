@@ -16,4 +16,4 @@ It's a first iteration of a repeating pattern. Over the next 15 I'll move a few 
 Every time I move or travel, running becomes a way to explore my new environment. I put my trainers on, and run for a while, choosing directions at random. I am probably lucky never to live anywhere very dangerous. I guess Glasgow might have been the riskiest place, if I had run at any other time - but I think at six AM the night life has gone to bed, and I am safe.
 It's fun to look at houses and streets, and find new places, or connect bits of the mental map you had no idea touched each other. To turn a corner and the view opens up.
 
-Again, it's also getting away, the space to think through some stuff, to daydream or just to focus on the moment. Running as both exploration and escape - exercise, while useful, becomes almost secondary.
+Again, running also getting away, having the space to think through some stuff, to daydream or just to focus on the moment. Running as both exploration and escape - exercise, while useful, becomes almost secondary.
