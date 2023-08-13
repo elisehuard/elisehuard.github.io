@@ -1,0 +1,35 @@
+---
+layout: post
+title: Weeknotes 27-2023 
+date: 2023-07-08 16:09:32 +0000
+categories: life writing stress
+---
+
+It's been quiet on here lately. I thought I'd try weeknotes, a format I've seen other people adopt instead of doing more conventional blogs. Like journaling, but more forgiving. I've always been in awe of people who have volume after volume of life logged in labeled notebooks. I've got a cheap notebook beside my bed that's been going for nearly 5 years because I only write in it every few months.
+
+So, weeknotes.
+
+**Positive stress**
+Someone at work shared this [TED Talk](https://www.ted.com/talks/kelly_mcgonigal_how_to_make_stress_your_friend/c). The gist of it is that stress doesn't necessarily lead to bad health outcomes, it leads to bad outcomes if you believe stress is bad. The trick is to see stress as something that keeps you sharp and on your toes.
+I don't like it. For two reasons:
+* stress as something that keeps you sharp already implies that you're seeing every issue that comes your way as a challenge you can definitely overcome, because you've got what it takes. It implies a considerable level of confidence and privilege. Nobody in your childhood shouted at you that you weren't good enough. You haven't faced major life crisis that seemed to lack any solution. I'm not contesting the study, I'm contesting the implication that seeing life as a game is something you can choose to do.
+* again with the sneaky twist to self help talk that if something bad happens to you, it's because you did it wrong - adding a layer of guilt to whatever's already going on.
+
+Cynical? Maybe. I've been trying the positive stress idea on for size, and have found it an awkward fit.
+
+**Community garden**
+I love going to the community garden on Saturday morning, and spending a few hours grubbing in the earth, or watering plants, or whatever else needs doing. Today we were fixing the roof of the shed, replacing the broken panels with new shiny plastic ones. I brought my (shiny, grown-up) drill to help out.
+I think I prefer weeding or seeding, all things considered, but it's still viscerally satisfying to see tangible, physical results of your work. Something I'm missing in the day job. The 10 year old was on point, climbing on the roof (carefully, someone holding the ladder) and helping with drilling holes and tightening screws, while I looked on half terrified, half proud. Good life skills to acquire.
+
+**Heath Robinson/Rube Goldberg**
+The week wasn't particularly satisfying. I'm trying to migrate an old, clunky, massive data analytics system over to consume a new event stream, because the old event stream is being retired. It's as black box as they come, with layers upon layers and logs hiding in dark, unexplored corners. I'm making progress. Sometimes I think my superpower is sheer stubbornness. Part of me really enjoys worrying at the puzzle until it gives. The other part is trying very hard to get the system deprecated so I never have to look at it ever again. It's also been waking me up in the mornings.
+
+**Unfuck your habitat**
+Not so good there, my housekeeping skills only function properly when I'm in a smooth routine. It's been an odd week full of child related interruptions and intensive work events. I've kept my plants alive and the kitchen reasonably in check, so we're still ok.
+
+**Diablo 4**
+Necromancer and Druid characters at levels 40-ish, they both look fairly blingy and are near indestructible now. Do I still like it? Some days I'm not sure. It's fairly relaxed - mash the buttons, kill the boss, get loot - but it gets a bit same-y, triggering existential dread (is this really what I want to be doing?). The story is not terribly compelling and is more an excuse for yet more boss fights-loot opportunities, which is the main weakness of the Diablo franchise. It's got nice surprises: there was a dungeon full of spiders that had a really good atmospheric electric guitar score. And the outfits absolutely kick butt.
+
+**Books** Central Station by Lavie Tidhar, And Put Away Childish Things by Adrian Tshaikovsky
+
+That's it for this week.
