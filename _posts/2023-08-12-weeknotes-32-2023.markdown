@@ -1,6 +1,6 @@
 ---
 layout: post
-title: weeknotes-32-2023 
+title: weeknotes-32-2023
 date: 2023-08-12 19:36:51 +0000
 categories: weeknotes travel Belgium
 ---
